@@ -7,6 +7,7 @@ https://youtu.be/o4-S54_MyfU?si=wcXmiGWeYexdqBkK
 https://youtu.be/Q18hmlwIoB8?si=l2Wc7u9329HsWf4p
 https://youtu.be/wEUtd_pHCMc?si=kmwmoSf8abn8DDz3
 https://youtu.be/uZjrYfuKvt8?si=2vYWgbLSsddrnNGM
+
 Textos
 https://www.britannica.com/biography/Marie-Jean-Antoine-Nicolas-de-Caritat-marquis-de-Condorcet
 https://novaescola.org.br/conteudo/1734/condorcet-a-luz-da-revolucao-francesa-na-escola
